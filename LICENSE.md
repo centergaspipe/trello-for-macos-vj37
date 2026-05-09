@@ -1,4 +1,4 @@
-
+Enhance Trello for macOS with smart Trello for macOS Integration | dark mode + collaboration, the #1 integration. Includes dark mode and collaboration for a smoother experience.
 
 
 
